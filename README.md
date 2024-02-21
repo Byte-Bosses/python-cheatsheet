@@ -1,4 +1,4 @@
-[pqrfiqjofjqeqweropqeopwp
+rqr[pqrfiqjofjqeqweropqeopwp
 rqiorjqiorHkfjweoRIJHWIBROUWEHEWO
 Comprehensive Python Cheatsheet
 ===============================
